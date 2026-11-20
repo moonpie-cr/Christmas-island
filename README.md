@@ -2,6 +2,8 @@
 
 > 一座会下雪的海上小岛，把你的心愿挂到树上 ✨
 
+<img width="1920" height="989" alt="image" src="https://github.com/user-attachments/assets/c71c8a9e-cee6-4e38-bbe7-f48ba7f3f968" />
+
 ---
 
 ## 🌟 这是什么？
